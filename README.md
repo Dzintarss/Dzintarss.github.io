@@ -1,0 +1,2 @@
+# Dzintarss.github.io
+Resume
